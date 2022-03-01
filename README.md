@@ -1,0 +1,1 @@
+# Stance-Detection-Ghana-2020-Elections
